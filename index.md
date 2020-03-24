@@ -71,7 +71,7 @@ Ottawa has a bunch of gyms and fitness studios, and intro month deals.
 
 ### Travel between Toronto–Ottawa
 
-* **VIA Rail** – You're trading off price and time, with reasonable comfort. If ****you book well in advance, you can get a roundtrip at the "Economy Escape" fare class for $80. Consider that the train is 5 hours, and it'll take you time to get to/from the train station on either end. The Ottawa train station is kind of in the middle of nowhere, but at least you can take the LRT directly there now.
+* **VIA Rail** – You're trading off price and time, with reasonable comfort. If you book well in advance, you can get a roundtrip at the "Economy Escape" fare class for $80. Consider that the train is 5 hours, and it'll take you time to get to/from the train station on either end. The Ottawa train station is kind of in the middle of nowhere, but at least you can take the LRT directly there now.
 * **Megabus**
 * **Ridesharing** (e.g. Kangaride) – Super cheap, but takes time. Book a couple days in advance.
 * **Porter** – Bussing to the Ottawa airport (YOW) during the day is doable. Uber/Lyft is obviously shorter and more direct.
